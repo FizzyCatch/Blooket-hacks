@@ -1,5 +1,9 @@
 # Blooket-hacks
-I did not make the hacks i coppyed them from gliz
+I did make the hacks.
+
+
+
+They are not copyed
 
 
 
