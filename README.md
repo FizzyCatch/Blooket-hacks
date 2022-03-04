@@ -1,5 +1,5 @@
 # Blooket-hacks
-Thank you to glizzy for the hacks.
+I did not make the hacks i coppyed them from gliz
 
 
 
